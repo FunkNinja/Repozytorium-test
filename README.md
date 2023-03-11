@@ -1,2 +1,2 @@
-# Repozytorium-test-
+# Repozytorium-test
 Bartosz Lyzwa
